@@ -198,9 +198,9 @@ Currently expanding knowledge through:
 
 # 🤝 Connect With Me
 
-💼 LinkedIn: Add your profile link
+💼 LinkedIn:https://www.linkedin.com/in/emmanuel-kipchumba-16925b3ab?utm_source=share_via&utm_content=profile&utm_medium=member_android
 
-📧 Email: Add your email
+📧 Email: kipchumbaemmanuel061@gmail.com
 
 🌐 GitHub: https://github.com/6manusigei3
 
